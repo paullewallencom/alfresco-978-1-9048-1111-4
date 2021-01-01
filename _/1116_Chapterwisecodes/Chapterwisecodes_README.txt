@@ -1,0 +1,1 @@
+Chapter 1, 2 and 12 do contain any codes or any other downloadable files. Hence their folder is not available in the chapterwise download folder.
